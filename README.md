@@ -1,0 +1,1 @@
+# Triatoma_dimidiata_12SrRNA
